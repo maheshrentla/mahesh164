@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mahesh116
-- 👀 I’m interested in to projects
-- 🌱 I’m currently learning 
+- 👀 I’m interested work in projects
+- 🌱 I’m currently working in a MNC 
 - 💞️ I’m looking to collaborate on basic level projects
 - 📫 How to reach me @ maheshrentla@gamil.com
 
